@@ -1,5 +1,5 @@
-- 🧔🤙 Hi, I’m @gabZun97 (Gabriel Zuniga).
-- 🧐 I’m interested in exact Sciences.
+- 🧔🖐 Hi, I’m @gabZun97 (Gabriel Zuniga).
+- 🧑‍🔬🧑‍🔬⚛ I’m interested in exact Sciences.
 - 🧑‍💻📚 I’m currently learning a bit of everything.
 -  I’m looking to collaborate on Scientific and Computer Research Projects.
 - 📫 How to reach me, email: kgzunigab97@gmail.com; Whatsapp: 504 + 99-57-44-50.
