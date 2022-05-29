@@ -1,4 +1,4 @@
-- 🧔🖐 Hey, soy Gabriel Zuniga.
+-Hey, soy Gabriel Zuniga🧔.
 
 Informática Administrativa - UNAH.
 
