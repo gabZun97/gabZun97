@@ -1,7 +1,4 @@
-- 🧔🖐 Hi, I’m @gabZun97 (Gabriel Zuniga).
-- 🧑‍🔬⚛ I’m interested in exact Sciences.
-- 🧑‍💻📚 I’m currently learning a bit of everything.
-- 🕵🧩 I am looking to collaborate in Research and Development projects.
+- 🧔🖐 Hey, soy Gabriel Zuniga.
 - 📫 📳 How to reach me, email: kgzunigab97@gmail.com.
 
 
